@@ -1,1 +1,1 @@
-Hello, thank you for visting my github space. I currently have one public repository and a few private ones that are being worked in. They will be public once they are finished. Thank you for your patience.
+Hello, thank you for visting my github space. I currently have 3 public repository's and a couple private ones that are being worked in. They will be public once they are finished. Thank you for your patience.
